@@ -1,4 +1,5 @@
 # 🌿 Soutien Tâche & Attention
+<img width="1261" height="736" alt="Capture d&#39;écran 2026-10-16 113141" src="https://github.com/user-attachments/assets/72503db4-9248-45e0-876b-86d1184c480e" />
 
 ### Assistant de clarté et d'alignement personnel
 
